@@ -1,0 +1,2 @@
+# DA_OCT_2026_Internship_Tasks
+Internship_tasks
